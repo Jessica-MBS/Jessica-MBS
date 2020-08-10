@@ -7,5 +7,5 @@ I'm Jessica Montenegro and here are some curiosities about me:
 - 😄 I'm a creative and curious person
 - ❤️ I love programming and designing, I'm also interested in creating creative coding projects and make connections with good people :)  
 - 🎵 Fun Facts: I'm a nerd who plays samba :P
+- 📫 How to reach me: IN: https://www.linkedin.com/in/jambs
 
-📫 IN: https://www.linkedin.com/in/jambs/
